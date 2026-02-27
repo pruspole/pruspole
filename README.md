@@ -7,12 +7,12 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/f753e0db071010698392f65b60dea8a9/75ce186d25a4c6f8-98/s2048x3072/1679f031c01672a1e5ce235c94e1d7e326200fc6.gifv" p>
 
-<p align="center"> ໒ྀི｡　𝙴᥎ᥲᥒ　  　𓏴𓏴　 　𝙰ᥣ𝖿rᥱძ　་། ͡  p>
+<p align="center"> ໒　  𝙴᥎ᥲᥒ　　𓏴𓏴　　𝙰ᥣ𝖿rᥱძ　་། ͡ 
   
-<p align="center"> ━╋　𝚌 + 𝚑 　᧔ †∔ ᧓ 　ྀ　sіgᥒ ᥲ𝗍ᥲ
+<p align="center"> ━╋　 ◠　 　𝐜 + 𝐡　　.　　sіgᥒ ᥲ𝗍ᥲ
 
 <p align="center">
-<img src="https://i.postimg.cc/g2GvLRgN/k3m4ko.png" p>
+<img src="https://biscuit.crd.co/assets/images/gallery86/cd5478ba.gif?v=edffcd2f" p>
 
 <p align="center"> <a href="https://jermagerm.atabook.org/" title="atabook">atabook</a>　 　<a href="https://evanwashere.straw.page/" title="strawpage">strawpage</a>　 　<a href="https://rentry.co/pruspole" title="rentry">rentry</a>
 <p align="center">
