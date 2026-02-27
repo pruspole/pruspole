@@ -15,6 +15,6 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/29c406706c2e60bfeb2086bc3371acba/c9abca78ca7d51e6-7e/s100x200/9cdb25afc3f28a0b589ad045b80f93686a3499ed.pnj" p>
 
-<p align="center"> <a href="https://jermagerm.atabook.org/" title="atabook">atabook</a>　 　<a href="https://evanwashere.straw.page/" title="strawpage">strawpage</a>　 　<a href="https://rentry.co/jermagerm" title="rentry">rentry</a>
+<p align="center"> <a href="https://jermagerm.atabook.org/" title="atabook">atabook</a>　 　<a href="https://evanwashere.straw.page/" title="strawpage">strawpage</a>　 　<a href="https://rentry.co/pruspole" title="rentry">rentry</a>
 <p align="center">
 <img src="https://64.media.tumblr.com/8ffece61c5d52842abd6ba6e6e15a431/75ce186d25a4c6f8-23/s400x600/16b8c0a215a66b53e9108f02c463abd62e9233de.pnj" p>
