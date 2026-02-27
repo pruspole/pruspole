@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/59f24ae4b426f279e7417a5e5b32af5f/75ce186d25a4c6f8-c8/s400x600/760b5b3a781482f0b0bcca4a95d6f66dc5a21e62.pnj" p>
 
 <p align="center">
-<img src="https://blinkies.cafe/b/blinkiesCafe-Vp.gif" p> <img src="https://blinkies.cafe/b/blinkiesCafe-sF.gif" p>
+<img src="https://64.media.tumblr.com/99abc6c1e19973e6569510ef79b3abe6/693426381f0b84ec-4a/s100x200/5d4ce88b3db25b902e844bac5cb26b9b496376e7.pnj" p>
   
 <p align="center">
 <img src="https://64.media.tumblr.com/f753e0db071010698392f65b60dea8a9/75ce186d25a4c6f8-98/s2048x3072/1679f031c01672a1e5ce235c94e1d7e326200fc6.gifv" p>
