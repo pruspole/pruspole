@@ -1,4 +1,3 @@
-<p align="center"> ♯　𝗹𝗮 𝗺𝗲𝗴 𝘃æ𝗿𝗲 𝘂𝗻𝗴　◞
 <p align="center">
 <img src="https://64.media.tumblr.com/956db696d0e4f472bdedefe53c016735/19cf3be4d99f6832-e3/s2048x3072/5ef6eb9f7758e1c523e428e898810e0db9ac031f.pnj" p>
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pruspole&color=347C31&label=awesome&style=flat" </p>
