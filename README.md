@@ -1,13 +1,11 @@
 <p align="center"> 𝗹𝗮 𝗺𝗲𝗴 𝘃æ𝗿𝗲 𝘂𝗻𝗴
-
 <p align="center">
-<img src="https://i.postimg.cc/50FqBYq6/image_2024_05_23_223632282.png" p>
-  
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=pruspole&color=8495F9&label=awesome&style=flat" </p>
+<img src="https://64.media.tumblr.com/956db696d0e4f472bdedefe53c016735/19cf3be4d99f6832-e3/s2048x3072/5ef6eb9f7758e1c523e428e898810e0db9ac031f.pnj" p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=pruspole&color=347C31&label=awesome&style=flat" </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/994d77e96e8918f80bfc89d85277f082/a2e70bae36a2093d-82/s2048x3072/3485111fd2dc6436c6d6af8df537c818b0f365f6.pnj" p>
+<img src="https://64.media.tumblr.com/c1bf5f1e91d3448497f7376108cffa05/19cf3be4d99f6832-52/s540x810/3caca14a8d439e869f39659e1b8b1427ae8dd6bb.pnj" p>
 <p align="center"> ໒　  𝙴᥎ᥲᥒ　　𓏴𓏴　　𝙰ᥣ𝖿rᥱძ　་། ͡ 
 <p align="center"> ━╋　 ◠　 　𝐜 + 𝐡　　.　　іᥒ𝗍 𝖿rᥱᥱᥣᥡ
 <p align="center"> <a href="https://jermagerm.atabook.org/" title="atabook">1</a>　　　<a href="https://evanwashere.straw.page/" title="strawpage">2</a>　　　<a href="https://pruspole.straw.page/" title="strawpage 2">3</a>　　　<a href="https://rentry.co/pruspole" title="rentry">4</a>
 <p align="center">
-<img src="https://i.postimg.cc/QtWkQ9kZ/image_2024_05_23_223621609.png" p>
+<img src="https://64.media.tumblr.com/3dc7ee5129f1ea979eaafba1e1c35905/19cf3be4d99f6832-ee/s2048x3072/501383a008eb99189cd01f2bc1623ece15cc3c97.pnj" p>
