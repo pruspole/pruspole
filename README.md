@@ -8,6 +8,6 @@
 <p align="center"> ໒　  𝙴᥎ᥲᥒ　　𓏴𓏴　　𝙰ᥣ𝖿rᥱძ　་། ͡ 
 <p align="center"> ━╋　 ◠　 　𝐜 + 𝐡　　.　　іᥒ𝗍 𝖿rᥱᥱᥣᥡ
 <p align="center"> <a href="https://jermagerm.atabook.org/" title="atabook">atabook</a>　　　<a href="https://pruspole.straw.page/" title="strawpage">strawpage</a>　　　<a href="https://rentry.co/pruspole" title="rentry">rentry</a>
-<p align="center"> 𝑮𝑹𝑨𝑷𝑯𝑰𝑪 𝑩𝒀 𝑫𝑶𝑽𝑬 𝑻𝒀 𝑻𝒀
+<p align="center"> 𝑮𝑹𝑨𝑷𝑯𝑰𝑪 𝑩𝒀 𝑫𝑶𝑽𝑬 𝑻𝒀 𝑻𝒀. art by hallow-ghost
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1332846517282668687/1493060228193845269/a4dc794240a86971fd251ed3b16dca88056eb9f5_2.png?ex=69dd9832&is=69dc46b2&hm=778f5cf127c55b579c8012d2c13111e2b8bbd8d1f15dbe23eb1461ae11482cc5&=&format=webp&quality=lossless&width=1166&height=186" p>
