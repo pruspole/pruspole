@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1332846517282668687/1493060227925414050/257ffd49f507df6c6233bf2e03db35011a08b3fc_2.png?ex=69dd9832&is=69dc46b2&hm=5f61863b2f4da770f0513b8fd20f8b77626884c6576d9db3929f931f0e2986af&=&format=webp&quality=lossless&width=1166&height=186" p>
+<img src="https://media.discordapp.net/attachments/1332846517282668687/1493060227925414050/257ffd49f507df6c6233bf2e03db35011a08b3fc_2.png?ex=69e18cb2&is=69e03b32&hm=bbfc7a8ca74d8b9f9f2bdb85a1ab0a540f230a00d43f5cd0177afaa89dc6c839&=&format=webp&quality=lossless&width=1214&height=193" p>
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pruspole&color=9B94A7&label=awesome&style=flat" </p>
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1117503298841346133/1492879253354840074/New_board2.png?ex=69dcefa6&is=69db9e26&hm=c49de6bd4f206adc45440f63e8c6a76e14782142fbd4e3f3daa7738ab9740f9c&=&format=webp&quality=lossless&width=804&height=471" p>
