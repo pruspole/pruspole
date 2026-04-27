@@ -1,4 +1,5 @@
-<p align="center"> $\color{#FBEBDD}\large{\textsf{c+h encouraged always!!}}$
+<p align="center"> $\color{#FBEBDD}{\textbf{c+h heavily encouraged!!}}$
+<p align="center"> $\color{#FBEBDD}{\textbf{roleplayers/prussia doubles dni or iwec}}$
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=pruspole&color=FBCDC5&label=beilschmidt&style=flat" </p>
 <p align="center">
 <img src="https://i.pinimg.com/736x/b0/58/5e/b0585ec97761a5034abfb55de4445f6c.jpg" </p>
